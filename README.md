@@ -1,2 +1,0 @@
-# Lazzatt
-Palvanova Lazzat
